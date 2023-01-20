@@ -29,4 +29,4 @@ linkedin:
 
   https://www.linkedin.com/in/tobias-finnegan-mv-95034677/
   
-Currently locatedin London,UK.
+Currently located in London, UK.
