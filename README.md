@@ -14,3 +14,19 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+Software Developing / Data science in my spare time;
+
+Currently working full-time in Banking operations and Data Analytics;
+
+About to start my own projects, related to data analysis and algorithmic trading;
+
+aspiring digital nomad 😄;
+
+Tableau Desktop specialist and enthusiast ⚡;
+
+linkedin:
+
+  https://www.linkedin.com/in/tobias-finnegan-mv-95034677/
+  
+Currently locatedin London,UK.
